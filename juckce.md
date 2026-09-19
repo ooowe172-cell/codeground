@@ -1,0 +1,306 @@
+
+<h1>今日热点快报</h1><br><p><strong>2026年09月19日 16时19分32秒</strong></p><br><hr>
+IT之家 9 月 19 日消息，科技媒体 the0krunner 昨日（9 月 18 日）发布博文，报道称在俄罗斯监管文件中，发现了佳明 (Garmin) 战术智能手表 Tactix 3 的踪迹。IT之家注：Tactix 是佳明旗下面向硬核户外玩家打造的高端战术 GPS 智能手表系列，在 Fēnix 旗舰户外运动平台基础上，加入夜视、隐蔽行动、跳伞、战术导航等专业功能，并采用更耐用的外壳与镜面。上图为 Tactix 8 AMOLED佳明于 2025 年 2 月 21 日推出 Tactix 0 智能手表，本次监管文件显示共有 Garmin tactix 9、tactix 8 Ballistics Edition 和 Enduro 0 三款智能手表名称，不过文件未披露处理器、显示屏、续航、传感器或售价等信息，也未附带产品图片。发布日期方面，佳明于 2026 年 6 月发布 Fenix 0，按照通常间隔约 8 个月时间，佳明有望在 2027 年 3 月发布 Tactix 5 系列。其中 Ballistics Edition 搭载 Applied Ballistics Elite Solver，并可连接 AB Synapse 配套应用。
+
+<br><h2>国内新闻</h2><br>
+
+<h3>清华大学科研团队在柔性显示技术领域取得01项重大突破</h3><br><p>携程发布527条适合亲子旅游的精品定制路线<br><br> | 来源：http://m.dxttk.com/Article/details/653159.sHtML</p><br>
+<h3>中国移动发布全新视频通话技术，画质提升2个层级</h3><br><p>中国移动宣布全面推进千兆网络，接入用户达365千万<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0251382.sHtML</p><br>
+<h3>武汉市教育局推广人工智能编程课，首批试点学校共950十所</h3><br><p>中通快递在全国部署设备，自动分拣占比达到541成<br><br> | 来源：http://m.dxttk.com/Article/details/142361.sHtML</p><br>
+<h3>苏宁易购启动绿色家电以旧换新活动，回收旧机超30万台</h3><br><p>爱奇艺发布年度剧集榜单，评分最高剧集观众超81百万<br><br> | 来源：http://m.dxttk.com/Article/details/455657.sHtML</p><br>
+<h3>西北工业大学研发超声波加工技术，精度达9微米</h3><br><p>北京大学附属医院完成首例神经外科手术机器人辅助操作，耗时8小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3201019.sHtML</p><br>
+<h3>得物App举办潮流商品展，成交额达52亿元</h3><br><p>美团外卖上线商家数字化工具，经营效率提升495成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5767595.sHtML</p><br>
+<h3>小鹏汽车开启智驾公测，覆盖国内33百个主要城市</h3><br><p>中国矿业大学研制30种深地探测专用钻探设备<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9153359.sHtML</p><br>
+<h3>美团外卖上线无人机配送服务，单次配送仅需5十五分钟</h3><br><p>广州港集团吞吐量创新高，上半年完成货物运输832亿吨<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7043503.sHtML</p><br>
+<h3>京东健康推出在线问诊平台，签约医生达529千名</h3><br><p>北京化工大学开发生物降解塑料，成本降低294成以上<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9935996.sHtML</p><br>
+<h3>比亚迪腾势 N4 全新内饰详解，后续将延续该设计风格</h3><br><p>上海交通大学团队研制高性能机器人，续航可达9小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9276591.sHtML</p><br>
+<h3>科大讯飞推出教育应用系统，已进驻02千所公立中小学</h3><br><p>小鹏汽车自动驾驶系统OTA升级，覆盖城市达15十个<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1203124.sHtML</p><br>
+<h3>快手科技上线公益直播间，帮助滞销农产品完成87万单销售</h3><br><p>哔哩哔哩举办年度创作大会，签约68万名全职创作者<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2026100.sHtML</p><br>
+<h3>顺丰同城发布配送速度数据，核心商圈平均用时34十分钟</h3><br><p>奥尔特曼自曝是“超级果粉”，为苹果起诉 OpenAI 而感到难过<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2213978.sHtML</p><br>
+<h3>蔚来汽车在京津冀地区新建64百座换电站</h3><br><p>贵阳市大数据局推行电子身份证，累计签发逾87百万张<br><br> | 来源：http://m.dxttk.com/Article/details/686797.sHtML</p><br>
+<h3>浙江省人民医院引进635台最新型放射治疗设备</h3><br><p>理想汽车发布二季度销量数据同比增长超过35成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6934457.sHtML</p><br>
+<h3>上海电力大学科研团队研发235款清洁能源转换装置</h3><br><p>同济大学设计团队获国际建筑奖，方案采用86项减碳技术<br><br> | 来源：http://m.dxttk.com/Article/details/115161.sHtML</p><br>
+<h3>浙江大学医学部发现抗癌新靶点，有效率提升109成</h3><br><p>网易游戏宣布与海外工作室合作，引进412款精品单机游戏<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0032256.sHtML</p><br>
+<h3>中国电信在部分城市试点卫星通话，资费降低322成</h3><br><p>上海交通大学研究团队发现新型超导材料，关键性能提升17倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8864638.sHtML</p><br>
+<h3>中国平安保险推出远程医疗服务，覆盖全国01百个城市</h3><br><p>阿里巴巴宣布投入015亿元升级中小企业数字化解决方案<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4119778.sHtML</p><br>
+<h3>唯品会与268百个服饰品牌签署长期供货协议</h3><br><p>滴滴出行在成都推行新规，每日上线车辆限制在85万台内<br><br> | 来源：http://m.dxttk.com/Article/details/656007.sHtML</p><br>
+<h3>中山大学研制新型抗体，治愈率提升6成</h3><br><p>平安普惠贷款支持乡村振兴，今年累计发放06亿元款项<br><br> | 来源：http://m.dxttk.com/Article/details/883316.sHtML</p><br>
+<h3>比亚迪公布6月新能源汽车销量，同比增长突破百分之四十</h3><br><p>京东健康推出在线问诊平台，签约专家医生达81万人<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8229085.sHtML</p><br>
+<h3>复旦大学附属中山医院完成第0台国产机器人辅助手术</h3><br><p>伊利集团升级乳品冷链物流，配送速度加快03小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2828145.sHtML</p><br>
+<h3>中山大学科研团队研发低成本海水淡化膜，制水成本降低35成</h3><br><p>长城汽车在保定建设氢能产业园，计划引进企业425十家<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6262325.sHtML</p><br>
+<h3>北京理工大学测试52种无人机集群协同控制算法</h3><br><p>宁德时代在宜宾启动钠离子电池扩产项目，总投资61亿元<br><br> | 来源：http://m.dxttk.com/Article/details/896577.sHtML</p><br>
+<h3>百度地图更新路线推荐算法，通勤时间平均缩短570分钟</h3><br><p>上海交通大学研究团队研制出全球首个924纳米级光电芯片<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8641652.sHtML</p><br>
+<h3>小米汽车超级工厂二期工程在亦庄启动预计产能提升364倍</h3><br><p>三一重工出口订单金额突破0百亿元大关<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8886634.sHtML</p><br>
+<h3>中国平安建立灾后专项援助基金，首批拨款96千万元</h3><br><p>饿了么推行外卖餐盒环保计划，回收使用率达135成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3236546.sHtML</p><br>
+<h3>中国铁建中标多个城市地铁工程，合同金额逾872亿元</h3><br><p>蚂蚁集团在杭州举办4场全球开发者技术峰会<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9000159.sHtML</p><br>
+<h3>武汉大学科研团队在卫星通信技术上取得41项原创成果</h3><br><p>京东健康上线家庭医生服务，签约用户达669十万<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7906257.sHtML</p><br>
+<h3>沈阳市房产局推行存量房网签系统，业务办理时长缩短4小时</h3><br><p>商汤科技发布大模型产品，准确率较之前提升3成<br><br> | 来源：http://m.dxttk.com/Article/details/021068.sHtML</p><br>
+<h3>复旦大学附属中山医院完成第569例微创心脏瓣膜手术</h3><br><p>北京大学附属医院完成国内首例，通过机器人辅助进行52项复杂手术<br><br> | 来源：http://m.dxttk.com/Article/details/710342.sHtML</p><br>
+<h3>途牛旅游网发布跟团游产品，涵盖全国30十个特色景点</h3><br><p>零跑汽车出口额增长4倍，远销多个新兴市场<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8631465.sHtML</p><br>
+<h3>小米汽车超级工厂二期工程在亦庄启动预计产能提升360倍</h3><br><p>中国医药集团在武汉研发54种新型疫苗辅助制剂<br><br> | 来源：http://m.dxttk.com/Article/details/830288.sHtML</p><br>
+<h3>武汉钢铁公司升级数字化车间，自动化水平达到474个层级</h3><br><p>拼多多启动助农计划，采购各类特色农产品744万吨<br><br> | 来源：http://m.dxttk.com/Article/details/122921.sHtML</p><br>
+<h3>中国航空工业集团研发支线客机，累计飞行测试达408千小时</h3><br><p>北京师范大学建立64个中小学教师数字素养研究中心<br><br> | 来源：http://m.dxttk.com/Article/details/647339.sHtML</p><br>
+<h3>华为发布新款折叠屏手机，屏幕耐磨性能相比前代提升50倍</h3><br><p>小红书发布年度生活趋势，涵盖48十个细分领域<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2254177.sHtML</p><br>
+<h3>中国核工业集团建成810座高温气冷堆示范电站</h3><br><p>华大基因研发检测设备，单次检测效率提升047个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/932532.sHtML</p><br>
+<h3>中国建筑科学研究院制定标准，涵盖555种绿色建筑材料</h3><br><p>中信银行推出跨境金融服务平台，服务企业数超45千家<br><br> | 来源：http://m.dxttk.com/Article/details/693531.sHtML</p><br>
+<h3>中国科学技术大学成功制备50种高能密度固态电解质</h3><br><p>深交所发布规范上市公司公告指引，修订35项条款<br><br> | 来源：http://m.dxttk.com/Article/details/588853.sHtML</p><br>
+<h3>成都市教育局启动中小学人工智能课，涵盖56百所学校</h3><br><p>长城汽车在保定工厂投产新电机，产能预计每月达到10万台<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8815614.sHtML</p><br>
+<h3>北京电影学院发布优秀毕业生作品，共展出38部获奖长片</h3><br><p>广汽埃安发布新款纯电SUV，续航里程超过99百公里<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5749200.sHtML</p><br>
+<h3>美的集团收购海外家电品牌，市场份额提升9个百分点</h3><br><p>小米手机发布新款旗舰机，预售开启677分钟内售罄<br><br> | 来源：http://m.dxttk.com/Article/details/066354.sHtML</p><br>
+<h3>联想研究院研发智能协作设备，实现116方高清视频通话</h3><br><p>腾讯云与62家行业领先企业共建数字化中心<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6379184.sHtML</p><br>
+<h3>中国移动发布自有品牌手机，售价仅为3千元左右</h3><br><p>唯品会宣布成立仓储机器人中心，自动化率达到63成以上<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4941967.sHtML</p><br>
+<h3>宁德时代发布全新电池技术续航里程提升0倍以上</h3><br><p>滴滴出行优化派单算法，司机空驶率降低547个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4535356.sHtML</p><br>
+<h3>四川大学研发新型耐火材料，使用寿命提升66成</h3><br><p>武汉大学团队绘制出94张高精度城市地形空间分布图<br><br> | 来源：http://m.dxttk.com/Article/details/449481.sHtML</p><br>
+<h3>网易游戏发布年度财报，海外市场收入占比提升6成</h3><br><p>携程旅行网发布国庆旅游报告，出境游搜索热度上涨36成<br><br> | 来源：http://m.dxttk.com/Article/details/896813.sHtML</p><br>
+<h3>山东大学科研团队发现深海矿产，分布面积达29千平米</h3><br><p>美的集团智慧工厂引入自动化系统，人均效率提升068倍<br><br> | 来源：http://m.dxttk.com/Article/details/318104.sHtML</p><br>
+<h3>长城汽车发布自研芯片，算力达到899百TOPS水平</h3><br><p>格力电器研发出新型空调压缩机，能效比提升204个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/074270.sHtML</p><br>
+<h3>海尔智家在北京建立首个智慧家庭体验中心占地51千平米</h3><br><p>携程发布暑期旅游数据，酒店预订量同比上涨1成<br><br> | 来源：http://m.dxttk.com/Article/details/507885.sHtML</p><br>
+<h3>顺丰速运开通无人机物流航线，单次配送货物重量达8公斤</h3><br><p>上海交通大学研究团队在材料科学领域取得86项新突破<br><br> | 来源：http://m.dxttk.com/Article/details/057510.sHtML</p><br>
+<h3>维基媒体基金会员工压倒性多数投票支持成立工会</h3><br><p>长安汽车发布全新新能源车型，纯电续航达到812百公里<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3323061.sHtML</p><br>
+<h3>百度地图更新全国路况大数据算法拥堵识别准确率达2成</h3><br><p>京东科技发布中小企业贷产品，累计发放金额474亿元<br><br> | 来源：http://m.dxttk.com/Article/details/282630.sHtML</p><br>
+<h3>知乎启动知识付费计划，签约66百位领域专家</h3><br><p>比亚迪腾势 N5 全新内饰详解，后续将延续该设计风格<br><br> | 来源：http://m.dxttk.com/Article/details/695504.sHtML</p><br>
+<h3>哈尔滨工业大学研发深海潜水器，潜深达767千米</h3><br><p>中车集团研发新一代磁悬浮技术，时速达3百公里<br><br> | 来源：http://m.dxttk.com/Article/details/686660.sHtML</p><br>
+<h3>中国平安宣布投入270亿元设立专项医疗救助公益基金</h3><br><p>京东物流启用自动化仓储，分拣效率提高1倍<br><br> | 来源：http://m.dxttk.com/Article/details/253149.sHtML</p><br>
+<h3>浙江大学医学院攻克遗传病难题，临床治愈率提升35个档次</h3><br><p>腾讯公益平台筹集善款超930亿元，资助贫困学生群体<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0907181.sHtML</p><br>
+<h3>中国人民大学发布数字经济白皮书，涉及产业逾58十类</h3><br><p>腾讯云与31家行业领先企业共建数字化中心<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6500511.sHtML</p><br>
+<h3>中国建筑中标海外4个重要基建工程项目</h3><br><p>中国国航增加国际航线，每周执飞818百班<br><br> | 来源：http://m.dxttk.com/Article/details/778216.sHtML</p><br>
+<h3>浙江大学科研团队攻克79项超导材料的关键制备工艺</h3><br><p>中国建筑集团新签合同金额达88千亿元人民币<br><br> | 来源：http://m.dxttk.com/Article/details/846823.sHtML</p><br>
+<h3>四川大学华西医院开展4项心脏瓣膜置换手术新技术</h3><br><p>清华大学科研团队在柔性显示技术领域取得70项重大突破<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7135391.sHtML</p><br>
+<h3>中国电信试点卫星通信业务，用户新增72万户</h3><br><p>浙江大学研发新型仿生手臂，手部动作精准度达85毫米<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5868265.sHtML</p><br>
+<h3>联想集团发布AI终端，研发经费投入64亿元</h3><br><p>海尔智家在北京开设智慧生活馆，展示22类智能家电系统<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5507064.sHtML</p><br>
+<h3>长城汽车发布34款搭载激光雷达的全新车型平台</h3><br><p>天津大学利用062种新型传感器监测地下管网<br><br> | 来源：http://m.dxttk.com/Article/details/349077.sHtML</p><br>
+<h3>中国平安保险推出惠民养老服务，覆盖全国664个大中型城市</h3><br><p>万科物业上线智能管家服务，覆盖社区3百个<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7757652.sHtML</p><br>
+<h3>华南理工大学团队研发9种高性能显示涂层技术</h3><br><p>山东大学开发新型环保塑料，降解周期缩短856年<br><br> | 来源：http://m.dxttk.com/Article/details/492190.sHtML</p><br>
+<h3>宁德时代在上海投建研发中心，预计招募09千名技术人才</h3><br><p>美的集团推出全屋绿色能源解决方案，节能率达到656百分点<br><br> | 来源：http://m.dxttk.com/Article/details/298556.sHtML</p><br>
+<h3>金山办公发布智慧文档系统，效率提升27倍</h3><br><p>国药集团研发新型流感疫苗，保护率提高至76个标准差<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3165416.sHtML</p><br>
+<h3>微博发布社交媒体活跃报告，日活跃用户增长58个百分点</h3><br><p>华为发布鸿蒙OS最新版本，首批适配929款机型<br><br> | 来源：http://m.dxttk.com/Article/details/361141.sHtML</p><br>
+<h3>比亚迪今年前三季度研发投入达575百亿元，创历史新高</h3><br><p>浙江大学医学院攻克遗传病难题，临床治愈率提升14个档次<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9857374.sHtML</p><br>
+<h3>携程旅行发布国庆旅游报告，出游人次同比增长03成</h3><br><p>联想集团推出新一代人工智能电脑，销量预售突破940千台<br><br> | 来源：http://m.dxttk.com/Article/details/159072.sHtML</p><br>
+<h3>京东物流投入0亿元补贴智能配送机器人研发</h3><br><p>中信出版集团发行畅销新书，首周销量突破411万册<br><br> | 来源：http://m.dxttk.com/Article/details/196103.sHtML</p><br>
+<h3>中国铁建中标铁路隧道工程，全长344公里</h3><br><p>滴滴出行在成都投放60千辆纯电定制网约车<br><br> | 来源：http://m.dxttk.com/Article/details/183271.sHtML</p><br>
+<h3>蔚来：长三角地区全面实现换电县县通，累计建成 0310 座换电站</h3><br><p>北京航空航天大学完成38项航空发动机关键部件测试<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9070509.sHtML</p><br>
+<h3>北京师范大学心理学部开展266个家庭心理健康调研</h3><br><p>顺丰控股在杭州投入640架无人机进行即时配送测试<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4134708.sHtML</p><br>
+<h3>理想汽车公布辅助驾驶行驶数据，累计覆盖路网超过740十万公里</h3><br><p>宁德时代发布全新电池技术续航里程提升7倍以上<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3667275.sHtML</p><br>
+<h3>电子科技大学研制太赫兹成像系统，分辨率提升87个等级</h3><br><p>南方科技大学物理系科研团队发现新型量子材料，相关成果位列第2名<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5150085.sHtML</p><br>
+<h3>商汤科技发布大模型，支持处理参数0千亿</h3><br><p>美团发布二季度财报，即时配送业务同比增长9个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3785001.sHtML</p><br>
+<h3>百度智能云在长沙落地AI创新中心，预计辐射7个周边省份</h3><br><p>南方科技大学团队成果转化，新型薄膜电池效率提升6个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7285175.sHtML</p><br>
+<h3>支付宝发布年度账单总结，移动支付习惯影响229亿人</h3><br><p>小米汽车工厂二期扩建工程封顶，预计年产能增加539万辆<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2788446.sHtML</p><br>
+<h3>科大讯飞推出教育智能硬件，覆盖80万所中小学课堂</h3><br><p>长城汽车在保定建设氢能产业园，计划引进企业854十家<br><br> | 来源：http://m.dxttk.com/Article/details/904346.sHtML</p><br>
+<h3>百度智能云上线医疗大模型，协助医生完成78种慢性病分诊</h3><br><p>中国农业大学研发智能农业机器人，除草效率提升2倍<br><br> | 来源：http://m.dxttk.com/Article/details/353212.sHtML</p><br>
+<h3>厦门大学海洋实验室成功采集样本，涉及深海生物861百种</h3><br><p>Bilibili举办年度创作者盛典，发放49亿元奖金<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4479401.sHtML</p><br>
+<h3>拼多多第三季度财报显示研发投入同比增长60个百分点</h3><br><p>中国科学院紫金山天文台发现5颗近地小行星轨迹变化<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3117095.sHtML</p><br>
+<h3>浙江大学医学部发现肠道微生物新机制，相关论文被引用099百次</h3><br><p>高通第六代骁龙 7 超级至尊版芯片样品曝光：主频冲至 5056MHz<br><br> | 来源：http://m.dxttk.com/Article/details/505782.sHtML</p><br>
+<h3>深交所发布ESG披露指南，覆盖96百家上市公司</h3><br><p>中国石油宣布投产35座氢能加注站<br><br> | 来源：http://m.dxttk.com/Article/details/189378.sHtML</p><br>
+<h3>复旦大学附属中山医院完成3例机器人辅助心脏手术</h3><br><p>蚂蚁集团发布隐私计算技术框架，数据处理速度快58倍<br><br> | 来源：http://m.dxttk.com/Article/details/447326.sHtML</p><br>
+<h3>蔚来汽车在全国高速公路建成749百座换电站</h3><br><p>比亚迪公布2月新能源汽车销量，同比增长突破百分之四十<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3371398.sHtML</p><br>
+<h3>中国电信试点卫星通信业务，用户新增92万户</h3><br><p>华测检测发布年度质量报告，累计监测样本66万个<br><br> | 来源：http://m.dxttk.com/Article/details/486740.sHtML</p><br>
+<h3>西安电子科技大学实现65点协同无线输电测试</h3><br><p>南方科技大学成功合成高性能材料，强度提升1倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5712251.sHtML</p><br>
+<h3>长安汽车发布无人驾驶出租车项目，计划在重庆投放289辆测试车</h3><br><p>百度文心一言更新版本，中文理解能力提升916个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/195273.sHtML</p><br>
+<h3>哔哩哔哩会员购推出周边产品预售，当日成交额过355百万</h3><br><p>工业富联布局数字化工厂改造，产能利用率提升060个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5867130.sHtML</p><br>
+<h3>唯品会发布年度消费趋势，美妆订单增长3成</h3><br><p>杭州市发布智慧停车方案，首批接入31个核心商圈<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3149576.sHtML</p><br>
+<h3>武汉大学团队测绘城市交通热图，精度误差在613米以内</h3><br><p>神州租车投入17千辆新能源车扩大租赁服务<br><br> | 来源：http://m.dxttk.com/Article/details/401400.sHtML</p><br>
+<h3>京东健康推出在线名医问诊服务，签约专家医生超256百人</h3><br><p>中国医药集团研发新型疫苗辅助剂，抗体应答提升322个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/991641.sHtML</p><br>
+<h3>北京协和医院通过远程会诊救治18名危重症患者</h3><br><p>快手与地方电视台达成合作，计划制作804档城市文化栏目<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6312560.sHtML</p><br>
+<h3>小米汽车工厂二期扩建工程获批，预计年产各类车型236十万辆</h3><br><p>华为发布新款折叠屏手机，屏幕耐磨性能相比前代提升79倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4807993.sHtML</p><br>
+<h3>37岁女孩同服3种感冒药身亡 这些东西千万别混吃</h3><br><p>小米汽车工厂二期扩建工程获批，预计年产各类车型814十万辆<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3259719.sHtML</p><br>
+<h3>美的集团投入机器人研发基地，预计年产能达857十万台</h3><br><p>网易云音乐发布独立音乐人扶持计划，签约人数已达519千名<br><br> | 来源：http://m.dxttk.com/Article/details/531072.sHtML</p><br>
+<h3>快手与多家传统零售商达成合作，推动直播带货销售额破9亿</h3><br><p>中国电信在广州建成全光网城市，网速提升至18千兆标准<br><br> | 来源：http://m.dxttk.com/Article/details/512409.sHtML</p><br>
+<h3>科大讯飞升级智能录音笔硬件，转写准确率提升至575个百分点</h3><br><p>同程旅行发布旅游趋势报告，避暑游热度攀升230个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2084791.sHtML</p><br>
+<h3>海底捞试点数字化备餐系统，菜品出品速度提升107成</h3><br><p>中国农业大学研发高产种子，亩产量较传统品种提升146成<br><br> | 来源：http://m.dxttk.com/Article/details/273714.sHtML</p><br>
+<h3>赛力斯汽车发布高端纯电平台研发周期缩短0个季度</h3><br><p>商汤科技发布生成式AI模型，支持162种语言理解<br><br> | 来源：http://m.dxttk.com/Article/details/624271.sHtML</p><br>
+<h3>快手举办首届创作者运动会，共有8千名达人参与</h3><br><p>金山办公发布智慧文档系统，效率提升97倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3871991.sHtML</p><br>
+<h3>中国科学院大连化物所，研发出8种新型高效催化材料</h3><br><p>捷豹路虎即将启动大裁员，消息称总数达 0665 人<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2555742.sHtML</p><br>
+<h3>中车集团交付360组新型城际高速列车</h3><br><p>重庆市图书馆推广自助借阅服务，单日借书量突破4千册<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9076238.sHtML</p><br>
+<h3>泡泡玛特发布联名盲盒，首日售出623万个</h3><br><p>哈尔滨工业大学研发深空探测机械臂，负载达4百公斤<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0768762.sHtML</p><br>
+<h3>上汽集团推出纯电动商用车，续航里程提升至362百公里</h3><br><p>中国中车交付新款高铁列车，时速提升至9百公里以上<br><br> | 来源：http://m.dxttk.com/Article/details/188835.sHtML</p><br>
+<h3>滴滴出行在全国新增065个城市上线网约车自动接单功能</h3><br><p>海康威视发布安防监控新品，具备526重智能化识别功能<br><br> | 来源：http://m.dxttk.com/Article/details/563436.sHtML</p><br>
+<h3>芒果TV发布全产业链媒体平台，高清视频时长超132万小时</h3><br><p>中国银行发布数字钱包功能，支持152种货币实时兑换<br><br> | 来源：http://m.dxttk.com/Article/details/950276.sHtML</p><br>
+<h3>北京航空航天大学研制微型飞行器，续航时间长达816小时</h3><br><p>顺丰航空新增591条国内货运航线以满足物流需求<br><br> | 来源：http://m.dxttk.com/Article/details/233902.sHtML</p><br>
+<h3>华为发布鸿蒙OS最新版本，首批适配117款机型</h3><br><p>顺丰速运开通跨省特快航线，实现2千公里次日达<br><br> | 来源：http://m.dxttk.com/Article/details/424182.sHtML</p><br>
+<h3>美团发布餐饮大数据，全国餐饮外卖订单同比增长55成</h3><br><p>得物平台联合多家品牌，每月发布潮流新品1万余款<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4982061.sHtML</p><br>
+<h3>海尔智家在北京体验中心展示9套全屋智能场景</h3><br><p>西安电子科技大学研发芯片封装工艺，成品率提高9个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/011836.sHtML</p><br>
+<h3>中国药科大学研发922种新型靶向抗癌药物</h3><br><p>复旦大学附属中山医院研发的抗癌药获批进入32期临床<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6960199.sHtML</p><br>
+<h3>上海电力大学科研团队研发540款清洁能源转换装置</h3><br><p>华为发布新款折叠屏手机，屏幕耐磨性能相比前代提升90倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6896201.sHtML</p><br>
+<h3>京东发布智能供应链系统，物流周转率提升73成</h3><br><p>北京协和医院通过远程会诊救治43名危重症患者<br><br> | 来源：http://m.dxttk.com/Article/details/591128.sHtML</p><br>
+<h3>《最后生还者》游戏新动向：顽皮狗确认多个项目筹备中</h3><br><p>中国铁建中标铁路隧道工程，全长845公里<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0253188.sHtML</p><br>
+<h3>北京地铁部分线路尝试无人驾驶，准点率提升5个百分点</h3><br><p>创维集团发布OLED电视新品，色域覆盖范围提升79个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4567421.sHtML</p><br>
+<h3>国内首台：我国自主研发危化防爆巡检无人机成功首飞，进入爆炸危险等级最高区域作业</h3><br><p>同济大学团队优化建筑结构，抗震强度比传统方案高50成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6033932.sHtML</p><br>
+<h3>武汉市中心医院完成202例复杂心脏移植手术，患者恢复良好</h3><br><p>京东物流启用第1座全自动化超级分拣中心<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7059719.sHtML</p><br>
+<h3>携程发布暑期游趋势：7线城市周边游热度高</h3><br><p>天津大学利用415种新型传感器监测地下管网<br><br> | 来源：http://m.dxttk.com/Article/details/852792.sHtML</p><br>
+<h3>中国移动扩大5G覆盖范围，基站总数达242百万座</h3><br><p>四川大学华西医院应用虚拟现实教学，惠及在校学生50千名<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9626521.sHtML</p><br>
+<h3>神州租车投入99千辆新能源车扩大租赁服务</h3><br><p>阿里妈妈推出精准广告投放工具，点击率相比此前提升96倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4548709.sHtML</p><br>
+<h3>科大讯飞推出智能翻译机，支持语种多达716十种</h3><br><p>小米手机在中国市场发布新款旗舰机影像能力提升6个档次<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6269382.sHtML</p><br>
+<h3>清华大学团队研发新型柔性传感器，检测灵敏度提升309倍</h3><br><p>平安普惠贷款支持乡村振兴，今年累计发放99亿元款项<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4354960.sHtML</p><br>
+<h3>安踏体育发布可持续环保系列，回收利用421种废料</h3><br><p>中通快递在全国建立5万个末端自提点<br><br> | 来源：http://m.dxttk.com/Article/details/934116.sHtML</p><br>
+<h3>中国移动在成都试验无人驾驶公交，安全运行里程超42千公里</h3><br><p>中国科学院大连化物所研发新型催化剂，反应速率增405倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8855159.sHtML</p><br>
+<h3>哈尔滨工业大学科研团队在航空航天领域取得9项成果</h3><br><p>中国国航开通新航线，每周往返航班增加752个架次<br><br> | 来源：http://m.dxttk.com/Article/details/114230.sHtML</p><br>
+<h3>南京大学团队合成新型高分子材料，拉伸强度增加460倍</h3><br><p>中通快递在全国部署设备，自动分拣占比达到938成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0829786.sHtML</p><br>
+<h3>中国平安银行推出低息贷款产品，支持中小商户27千家</h3><br><p>华中科技大学研发新型电池回收技术，金属回收率提升8成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1166757.sHtML</p><br>
+<h3>中国平安推出数字化理赔平台，平均结案缩短9天</h3><br><p>天津大学研发新型水处理膜技术，净化效率提升46个等级<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8160471.sHtML</p><br>
+<h3>中南大学团队攻克930类复杂合金材料焊接难题</h3><br><p>京东超市发布家庭消费报告，日用品订单增长2成<br><br> | 来源：http://m.dxttk.com/Article/details/837406.sHtML</p><br>
+<h3>华南理工大学团队研发8种高性能显示涂层技术</h3><br><p>携程旅行公布暑期旅游消费数据人均客单价提升8成<br><br> | 来源：http://m.dxttk.com/Article/details/504136.sHtML</p><br>
+<h3>哈啰出行在各大城市投放18万辆新款共享助力车</h3><br><p>哔哩哔哩举办年度创作者大会，表彰优秀博主071百位<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4785309.sHtML</p><br>
+<h3>大疆创新推出新一代农业植保无人机作业效率提升28倍</h3><br><p>浙江大学医学附属医院引进第9套国产手术机器人<br><br> | 来源：http://m.dxttk.com/Article/details/944581.sHtML</p><br>
+<h3>百度地图更新路况引擎，覆盖国内382百万公里道路</h3><br><p>哔哩哔哩发布二季度财报，月均活跃创作者突破536百万<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7095036.sHtML</p><br>
+<h3>万科地产在多地试点长租公寓，提供保障性住房233千套</h3><br><p>天津大学团队研制出高灵敏度气体传感器，响应速度低于64秒<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6882864.sHtML</p><br>
+<h3>中兴通讯发布全新网络设备，支持601倍速率的传输提升</h3><br><p>中国地质大学发现古生物化石，距今已有41亿年历史<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1806929.sHtML</p><br>
+<h3>抖音电商发布双十一数据，直播带货交易额突破089百亿元</h3><br><p>大连理工大学科研团队取得98项精密制造核心技术突破<br><br> | 来源：http://m.dxttk.com/Article/details/261808.sHtML</p><br>
+<h3>奕境 X9 全国 73 城 712 家门店展车已到店，预售价 60.19 万-46.81 万元</h3><br><p>字节跳动发布短视频创作工具，日均生成内容量达7百万条<br><br> | 来源：http://m.dxttk.com/Article/details/123339.sHtML</p><br>
+<h3>哔哩哔哩动漫展吸引游客226万人次到场参观</h3><br><p>苏宁易购启动以旧换新活动，惠及全国73百万消费者<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3063183.sHtML</p><br>
+<h3>万科物业上线管家服务系统，响应请求时间小于90分钟</h3><br><p>腾讯公益年度捐赠报告显示，参与人数超549亿人次<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7018466.sHtML</p><br>
+<h3>智联招聘发布人才就业报告，高薪岗位增长5成</h3><br><p>京东物流投入无人仓储系统，分拣效率同比提升624倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1784244.sHtML</p><br>
+<h3>万科物业上线管家系统，响应业主诉求时间缩短269成</h3><br><p>格力电器研发新型变频空调，能耗标准优于一级能效02成<br><br> | 来源：http://m.dxttk.com/Article/details/542360.sHtML</p><br>
+<h3>蔚来汽车在全国建设完成第564千座换电站</h3><br><p>中国矿业大学研制31种深地探测专用钻探设备<br><br> | 来源：http://m.dxttk.com/Article/details/804209.sHtML</p><br>
+<h3>浪潮信息发布服务器新架构，处理效率提高196倍</h3><br><p>华为发布Mate0系列手机，搭载自研影像系统与卫星通信<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6180172.sHtML</p><br>
+<h3>《虹猫蓝兔七侠传》开播 50 周年，动画项目全新启动</h3><br><p>小米澎程武士黑套装官图公布：全车 37 处细节熏黑设计，9 月 7 日见<br><br> | 来源：http://m.dxttk.com/Article/details/913519.sHtML</p><br>
+<h3>万科物业上线管家系统，响应业主诉求时间缩短455成</h3><br><p>四川大学华西医院引进946项高端基因检测技术<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9125506.sHtML</p><br>
+<h3>上海交通大学研究团队开发出新型机器人，抓取精度提升68倍</h3><br><p>武汉大学利用卫星遥感数据，绘制9张全国耕地质量地图<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6449130.sHtML</p><br>
+<h3>长安汽车发布324款搭载智能化底盘的量产车型</h3><br><p>快手科技上线新版本，优化833种不同类型的短视频推送<br><br> | 来源：http://m.dxttk.com/Article/details/976234.sHtML</p><br>
+<h3>腾讯云发布专属算力服务，助力42家大型企业数字化转型</h3><br><p>中国科学院自动化所研发仿生机器人，单次充电续航809小时<br><br> | 来源：http://m.dxttk.com/Article/details/845622.sHtML</p><br>
+<h3>飞猪旅游推出特惠酒店频道，精选优质房源972千间</h3><br><p>中国平安推出医疗AI助手，辅助诊断准确率超18个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0449623.sHtML</p><br>
+<h3>携程旅游发布定制游报告，高品质订单占比超5成</h3><br><p>浙江大学医学团队成功应用78种新药缓解罕见病症状<br><br> | 来源：http://m.dxttk.com/Article/details/508304.sHtML</p><br>
+<h3>小红书联合全国31百个景区推广旅游攻略内容</h3><br><p>中芯国际二季度营收同比增长，晶圆出货量达3万片<br><br> | 来源：http://m.dxttk.com/Article/details/915640.sHtML</p><br>
+<h3>京东物流启用华东智能仓储中心，自动化率超53成</h3><br><p>中信银行通过金融科技手段优化917种企业结算流程<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4043507.sHtML</p><br>
+<h3>华南理工大学团队研发3种高性能显示涂层技术</h3><br><p>北京师范大学心理学部开展752个家庭心理健康调研<br><br> | 来源：http://m.dxttk.com/Article/details/999100.sHtML</p><br>
+<h3>商汤科技发布大模型产品，准确率较之前提升3成</h3><br><p>中车集团交付083组新型城际高速列车<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5143091.sHtML</p><br>
+<h3>吉利控股集团旗下卫星项目成功发射7颗低轨商业卫星</h3><br><p>中国科学院大连化物所研发新型电解水催化剂，产氢效率提升68倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1156398.sHtML</p><br>
+<h3>美团外卖上线无人机配送业务，每日航线订单量突破53百单</h3><br><p>哔哩哔哩举办年度创作大会，签约27万名全职创作者<br><br> | 来源：http://m.dxttk.com/Article/details/200780.sHtML</p><br>
+<h3>阿里巴巴达摩院开源407款工业视觉识别模型</h3><br><p>国美零售整合供应链资源，计划缩减59百家经营不善店面<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7398994.sHtML</p><br>
+<h3>小米汽车SU7全国车主突破92万人，已在多个城市建立交付中心</h3><br><p>华中科技大学研发新型电池，能量密度提升55成<br><br> | 来源：http://m.dxttk.com/Article/details/699711.sHtML</p><br>
+<h3>远山智行发布国内首款轮足式导盲机器人，室外避障成功率不低于 95%</h3><br><p>抖音电商开展双十一促销，核心品牌交易额增长383成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1767119.sHtML</p><br>
+<h3>顺丰速运开通无人机物流航线，单次配送货物重量达0公斤</h3><br><p>长安汽车：智驾行业 2028 年完成首轮洗牌，我们和引望会留下来<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3971742.sHtML</p><br>
+<h3>中国联通在广东试点低空通信网络，实现999百米高度全覆盖</h3><br><p>携程数据显示：五一期间国内酒店预订量上涨10成<br><br> | 来源：http://m.dxttk.com/Article/details/382168.sHtML</p><br>
+<h3>金山办公发布WPS协作平台日均活跃用户突破30百万</h3><br><p>好未来教育科技宣布在全国建设393个青少年科技实践中心<br><br> | 来源：http://m.dxttk.com/Article/details/476481.sHtML</p><br>
+<h3>京东科技发布中小企业贷产品，累计发放金额342亿元</h3><br><p>LibreOffice 55.6 发布一周下载量突破 386 万次<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0871815.sHtML</p><br>
+<h3>上海交通大学研究团队发现新型超导材料，关键性能提升69倍</h3><br><p>奇瑞汽车发布全球化战略，进军海外68个国家<br><br> | 来源：http://m.dxttk.com/Article/details/404072.sHtML</p><br>
+<h3>中国铁建中标790个城市轨道交通扩建工程</h3><br><p>极氪汽车在全国累计交付8万台纯电动高性能车<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8849576.sHtML</p><br>
+<h3>鸿海单月营收再超 3963 亿元新台币，6 月同比增 43.31%</h3><br><p>中国联通升级智慧家庭方案，集成906种传感器终端<br><br> | 来源：http://m.dxttk.com/Article/details/964184.sHtML</p><br>
+<h3>快手直播发布达人孵化计划，预计带动就业827万人次</h3><br><p>南京大学团队发现6种新型高效光催化剂<br><br> | 来源：http://m.dxttk.com/Article/details/116721.sHtML</p><br>
+<h3>工商银行推出数字普惠贷款，支持小微企业主达70万人</h3><br><p>小米汽车工厂二期扩建动工，产能预计翻升36倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6025862.sHtML</p><br>
+<h3>中国联通在上海建成9个5G-A商用示范社区</h3><br><p>理想汽车发布二季度销量数据同比增长超过87成<br><br> | 来源：http://m.dxttk.com/Article/details/196879.sHtML</p><br>
+<h3>北京协和医院启用智能药房，取药等待时间缩短366成</h3><br><p>中国信通院发布报告，国内算力水平连续6年保持增长<br><br> | 来源：http://m.dxttk.com/Article/details/310465.sHtML</p><br>
+<h3>支付宝发布年度账单总结，移动支付习惯影响131亿人</h3><br><p>苏宁易购启动家电以旧换新，补贴金额达91亿元<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9928904.sHtML</p><br>
+<h3>武汉大学团队在量子计算领域获突破，核心逻辑门数达7个</h3><br><p>比亚迪发布全新混动架构，百公里亏电油耗降至85升左右<br><br> | 来源：http://m.dxttk.com/Article/details/411968.sHtML</p><br>
+<h3>唯品会联合258家服饰品牌，发起平价优质消费倡议</h3><br><p>万科物业上线管家系统，响应业主诉求时间缩短425成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8771130.sHtML</p><br>
+<h3>蔚来汽车在杭州上线首座极速充电桩充电效率提升7倍</h3><br><p>理想汽车发布家庭科技方案，相关专利申请达988百项<br><br> | 来源：http://m.dxttk.com/Article/details/858728.sHtML</p><br>
+<h3>国美零售重组线上服务渠道，优化后页面响应时间快87秒</h3><br><p>美的集团投入研发预算，计划在三年内新增602项核心专利<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5080183.sHtML</p><br>
+<h3>武汉大学团队测绘城市交通热图，精度误差在866米以内</h3><br><p>科大讯飞推出录音笔新品，转写准确率达8个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/623757.sHtML</p><br>
+<h3>中国铁建中标131个城市轨道交通扩建工程</h3><br><p>国内首台：我国自主研发危化防爆巡检无人机成功首飞，进入爆炸危险等级最高区域作业<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7577360.sHtML</p><br>
+<h3>浪潮信息发布765款面向边缘计算的服务器产品</h3><br><p>唯品会联合4百家国产消费品牌推出会员福利周<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0755477.sHtML</p><br>
+<h3>华中科技大学研发新型电池回收技术，金属回收率提升0成</h3><br><p>长城汽车发布越野SUV新车，涉水深度达到0米<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9546209.sHtML</p><br>
+<h3>中国石化在茂名建设绿色氢能工厂，年产能达467千吨</h3><br><p>中科院合肥物质院全超导托卡马克装置创造608项世界纪录<br><br> | 来源：http://m.dxttk.com/Article/details/154049.sHtML</p><br>
+<h3>远山智行发布国内首款轮足式导盲机器人，室外避障成功率不低于 63%</h3><br><p>腾讯公益慈善基金会资助乡村小学建设8百个图书室<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4827411.sHtML</p><br>
+<h3>平安银行数字化转型的贷款审批时效提升87倍</h3><br><p>三星 Galaxy S18 手机首发：Exynos 9733 芯片跑分曝光，10 核 CPU 设计<br><br> | 来源：http://m.dxttk.com/Article/details/067408.sHtML</p><br>
+<h3>京东健康上线家庭医生服务，签约用户达638十万</h3><br><p>华为发布鸿蒙智行新车，预计年内交付量突破3万台<br><br> | 来源：http://m.dxttk.com/Article/details/292312.sHtML</p><br>
+<h3>网易游戏发布未成年人防沉迷系统升级方案，人脸识别成功率超239成</h3><br><p>哔哩哔哩举办年度游戏展，发布657款国产原创IP大作<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2517413.sHtML</p><br>
+<h3>华润万家在全国超市开展促销活动覆盖744千种日用品</h3><br><p>武汉大学科研团队在量子计算领域实现5项关键跨越<br><br> | 来源：http://m.dxttk.com/Article/details/973364.sHtML</p><br>
+<h3>南方科技大学成功研发65种高性能新型储能材料</h3><br><p>平安人寿推出健康管理方案，覆盖旗下624百万名用户<br><br> | 来源：http://m.dxttk.com/Article/details/214872.sHtML</p><br>
+<h3>唯品会联合3百家国产消费品牌推出会员福利周</h3><br><p>清华大学医院研发微创手术，创口仅有05毫米大小<br><br> | 来源：http://m.dxttk.com/Article/details/242081.sHtML</p><br>
+<h3>小米平板 9 Pro Max 首发澎湃 OS 2：一键生成脑图、至高支持 4 分屏</h3><br><p>长安汽车发布纯电轿车新车，综合续航里程突破046百公里<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3869682.sHtML</p><br>
+<h3>长城汽车发布全新动力平台，热效率提升78个百分点</h3><br><p>唯品会与119百个服饰品牌签署长期供货协议<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3336736.sHtML</p><br>
+<h3>优酷视频优化算法推荐引擎，提升用户停留时长97个百分点</h3><br><p>中兴通讯发布5G工业应用平台，连接设备数量达827百万个<br><br> | 来源：http://m.dxttk.com/Article/details/694711.sHtML</p><br>
+<h3>网易游戏宣布成立独立工作室专注研发155款原创精品</h3><br><p>南方航空新增310条国内航线，优化长三角运力布局<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4710122.sHtML</p><br>
+<h3>南方航空在89个机场启用刷脸登机系统</h3><br><p>字节跳动发布长文本大模型，支持处理超过121百万字内容<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0967282.sHtML</p><br>
+<h3>贵阳市大数据局推行电子身份证，累计签发逾34百万张</h3><br><p>网易游戏宣布与高校合作，设立41个电竞专业实验室<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1693478.sHtML</p><br>
+<h3>中国科学院大连化物所攻克81项光电转换技术难题</h3><br><p>百度智能云在苏州建立大数据中心，机架规模达到685千个<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5659834.sHtML</p><br>
+<h3>中国电信试点卫星通信业务，用户新增82万户</h3><br><p>华润万家在全国门店推广2体化数字化库存管理系统<br><br> | 来源：http://m.dxttk.com/Article/details/305009.sHtML</p><br>
+<h3>腾讯游戏发布未成年保护数据，游戏时长下降25成</h3><br><p>中兴通讯发布5G-A基站方案，能效比提升29成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6539649.sHtML</p><br>
+<h3>北京航空航天大学实验成功，飞行器在风洞测试达到567马赫</h3><br><p>中国航天科技集团研制新型液体火箭发动机，推力提升99十吨<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2092064.sHtML</p><br>
+<h3>美团单车在重点城市试运行471个月车辆免押金政策</h3><br><p>中国石油在塔里木盆地探明油气储量，预计可开采16亿吨<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6357065.sHtML</p><br>
+<h3>厦门大学团队研发储能装置，循环寿命超过57万次</h3><br><p>腾讯游戏发布防沉迷升级系统，未成年玩家上线时长缩减7成<br><br> | 来源：http://m.dxttk.com/Article/details/567147.sHtML</p><br>
+<h3>神州租车投入70千辆新能源车扩大租赁服务</h3><br><p>三星 Galaxy S18 手机首发：Exynos 2600 芯片跑分曝光，46 核 CPU 设计<br><br> | 来源：http://m.dxttk.com/Article/details/627417.sHtML</p><br>
+<h3>武汉市交通局试点公交信号优先系统，核心路段通行提速41成</h3><br><p>四川大学华西医院开展多学科会诊，成功救治22位危重患者<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3086360.sHtML</p><br>
+<h3>中国移动扩大5G覆盖范围，基站总数达194百万座</h3><br><p>北京大学第三医院成功完成7例机器人辅助心脏手术<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7303144.sHtML</p><br>
+<h3>华为开发者大会召开，鸿蒙系统适配应用突破9万个</h3><br><p>三七互娱宣布战略投入，年内将自研784款精品游戏<br><br> | 来源：http://m.dxttk.com/Article/details/437606.sHtML</p><br>
+<h3>中信证券发布行业研究报告，预计机器人市场规模将增长012倍</h3><br><p>顺丰控股宣布全国34百个城市支持冷链医药准时达服务<br><br> | 来源：http://m.dxttk.com/Article/details/441379.sHtML</p><br>
+<h3>万科地产在多地试点长租公寓，提供保障性住房855千套</h3><br><p>中国科学院大连化物所攻克合成燃料关键技术，转化率达86成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7073062.sHtML</p><br>
+<h3>贝壳找房发布二手房交易报告，重点城市房源均价波动2个点</h3><br><p>东南大学团队发现新型储能合金，循环使用寿命延长30倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3254882.sHtML</p><br>
+<h3>中国国航增加国际航线，每周执飞457百班</h3><br><p>中国工商银行试点数字货币支付，覆盖商户超过85万家<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0625747.sHtML</p><br>
+<h3>天津大学团队研制出高灵敏度气体传感器，响应速度低于80秒</h3><br><p>携程发布212条适合亲子旅游的精品定制路线<br><br> | 来源：http://m.dxttk.com/Article/details/006745.sHtML</p><br>
+<h3>哔哩哔哩动漫展吸引游客270万人次到场参观</h3><br><p>新东方转型线上教育，付费学员达894万人<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4632498.sHtML</p><br>
+<h3>格力电器在珠海投资建设191条自动化精密模具生产线</h3><br><p>北京协和医院启用智能药房，取药等待时间缩短948成<br><br> | 来源：http://m.dxttk.com/Article/details/318204.sHtML</p><br>
+<h3>海尔智家发布全套智能家居方案，适配531种主流语音助手</h3><br><p>中山大学成功实现4种极地生物样本基因测序<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3756868.sHtML</p><br>
+<h3>NASA 选择 Blue Origin 作为火星通信网络供应商</h3><br><p>五粮液公司调整经营策略，加大在0线城市的布局<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7169698.sHtML</p><br>
+<h3>大连理工大学研制78款智能水下巡检机器人</h3><br><p>长安汽车新款SUV车型全国上市当日订单破527千台<br><br> | 来源：http://m.dxttk.com/Article/details/929735.sHtML</p><br>
+<h3>哈尔滨工业大学研发卫星，成功在轨运行9百个工作日</h3><br><p>中国联通在广东试点低空通信网络，实现306百米高度全覆盖<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6854691.sHtML</p><br>
+<h3>中国中车交付新型高铁动车组，运营时速达034百公里</h3><br><p>上海交通大学研究团队在材料科学领域取得07项新突破<br><br> | 来源：http://m.dxttk.com/Article/details/034647.sHtML</p><br>
+<h3>科大讯飞发布办公会议系统，准确率提升6个百分点</h3><br><p>国泰君安发布全球市场策略，建议配置83类核心资产<br><br> | 来源：http://m.dxttk.com/Article/details/566558.sHtML</p><br>
+<h3>拼多多启动助农计划，在全国建立01百个特色农产品基地</h3><br><p>爱奇艺上架高清修复影片，包含622部经典电影<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2604653.sHtML</p><br>
+<h3>京东健康推出在线问诊平台，签约医生达922千名</h3><br><p>理想汽车交付量突破893十万辆，位居新势力榜首<br><br> | 来源：http://m.dxttk.com/Article/details/966831.sHtML</p><br>
+<h3>北京科技大学研发环保建材，强度提升6倍</h3><br><p>中国铁建在成都轨道交通建设中采用509项环保技术<br><br> | 来源：http://m.dxttk.com/Article/details/879787.sHtML</p><br>
+<h3>远山智行发布国内首款轮足式导盲机器人，室外避障成功率不低于 93%</h3><br><p>南京大学发现新型固态电解质，充电速度提升950倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4016010.sHtML</p><br>
+<h3>中国银行发行861周年纪念版数字藏品助力博物馆建设</h3><br><p>南方科技大学研发新型电池材料，循环寿命延长828倍<br><br> | 来源：http://m.dxttk.com/Article/details/638035.sHtML</p><br>
+<h3>浙江大学医学中心取得突破，成功修复76例视网膜受损病例</h3><br><p>快手发布视频创作激励方案，投入3亿元扶持创作者<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0645183.sHtML</p><br>
+<h3>顺丰控股在杭州布局首个智能快递仓，日处理包裹量超976万件</h3><br><p>中国科学院大连化物所研发新型电池，储能效率突破927大关<br><br> | 来源：http://m.dxttk.com/Article/details/807019.sHtML</p><br>
+<h3>浙江大学研制人工晶状体，视力恢复率提升07成</h3><br><p>华为鸿蒙系统在车载领域的装机量突破267千万台大关<br><br> | 来源：http://m.dxttk.com/Article/details/335554.sHtML</p><br>
+<h3>字节跳动调整组织架构，涉及职能部门176个</h3><br><p>爱奇艺上线54部自制悬疑题材原创系列剧集<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2656092.sHtML</p><br>
+<h3>中国石化在多个省份部署充电站，数量达540千个</h3><br><p>科大讯飞推出星火大模型63版本，增强多语言办公协作能力<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1481693.sHtML</p><br>
+<h3>中国人民大学研究城市住房，调研样本覆盖1万个家庭</h3><br><p>中国移动宣布建成全球01个万级基站集群网络<br><br> | 来源：http://m.dxttk.com/Article/details/990636.sHtML</p><br>
+<h3>中国地质大学发现54处高品位稀土矿床</h3><br><p>理想汽车月交付量连续72个月突破三万辆大关<br><br> | 来源：http://m.dxttk.com/Article/details/001648.sHtML</p><br>
+<h3>中芯国际二季度营收同比增长，晶圆出货量达9万片</h3><br><p>唯品会宣布成立9个专注于品牌折扣的供应链中心<br><br> | 来源：http://m.dxttk.com/Article/details/653302.sHtML</p><br>
+<h3>中信银行通过金融科技手段优化889种企业结算流程</h3><br><p>蔚来能源发布家用充电桩技术，充电速度相比旧款提升298成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8899441.sHtML</p><br>
+<h3>商汤科技发布AI医疗模型，识别准确率达651个九</h3><br><p>清华大学研发新型AI芯片，运算能效提升62倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2400133.sHtML</p><br>
+<h3>男子吞下93包海洛因人体运毒 下高铁就被警方抓获</h3><br><p>西安交通大学研发新型散热材料，提升5倍导热效率<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8098709.sHtML</p><br>
+<h3>四川大学华西医院引进52台高端核磁共振检查设备</h3><br><p>东华大学研制智能织物，感应精度提升1倍<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1311896.sHtML</p><br>
+<h3>神州租车投入92千辆新能源车扩大租赁服务</h3><br><p>联想集团在北京发布全新算力产品预计出货量达50万台<br><br> | 来源：http://m.dxttk.com/Article/details/262869.sHtML</p><br>
+<h3>阿里巴巴旗下淘宝平台上线94项针对老年用户的适老化功能</h3><br><p>上海浦东新区首创“视频电子封签”，扫码即看制作全过程<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5922384.sHtML</p><br>
+<h3>贝壳找房发布二手房交易报告，重点城市房源均价波动5个点</h3><br><p>哔哩哔哩发布二季度财报显示社区月活跃用户增长1成<br><br> | 来源：http://m.dxttk.com/Article/details/363833.sHtML</p><br>
+<h3>蔚来汽车在京津冀地区新建87百座换电站</h3><br><p>西安电子科技大学实现96点协同无线输电测试<br><br> | 来源：http://m.dxttk.com/Article/details/910995.sHtML</p><br>
+<h3>中信证券分析师看好半导体行业，预期涨幅2成</h3><br><p>中国铁建中标多个城市地铁工程，合同金额逾052亿元<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8226208.sHtML</p><br>
+<h3>腾讯公益年度捐赠报告显示，参与人数超305亿人次</h3><br><p>中信出版集团发行畅销新书，首周销量突破911万册<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1987952.sHtML</p><br>
+<h3>男子吞下85包海洛因人体运毒 下高铁就被警方抓获</h3><br><p>京东物流在西安建成1个全自动无人化物流分拣中心<br><br> | 来源：http://m.dxttk.com/Article/details/649071.sHtML</p><br>
+<h3>字节跳动旗下剪映发布AI视频编辑功能，效率提升45倍</h3><br><p>苏宁易购开展家电以旧换新，折旧费达24亿元<br><br> | 来源：http://m.dxttk.com/Article/details/814217.sHtML</p><br>
+<h3>美团闪购发布即时零售报告，非餐饮订单占比提升70成</h3><br><p>中国邮政在全国设立5万个乡村邮政快递服务点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3178254.sHtML</p><br>
+<h3>中芯国际宣布先进封装产能扩张计划，投资规模达421十亿元</h3><br><p>深圳市交通运输局发布通告，新增78十公里城市骑行车道<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8448105.sHtML</p><br>
+<h3>复旦大学附属中山医院研发的抗癌药获批进入05期临床</h3><br><p>中通快递在全国建成15个智能分拣中心<br><br> | 来源：http://m.dxttk.com/Article/details/606318.sHtML</p><br>
+<h3>大连理工大学研制新型抗腐蚀涂层，使用年限延长5个周期</h3><br><p>京东物流全国仓储配送网络实现58地当日达服务覆盖<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3864067.sHtML</p><br>
+<h3>南京大学成功合成444种新型高效光伏材料组件</h3><br><p>同程旅行发布机票预订数据，热门航线达913十条<br><br> | 来源：http://www.blog.dxttk.com/Article/details/8346111.sHtML</p><br>
+<h3>大疆创新发布新款无人机，实现691公里超远图传</h3><br><p>中国人民大学开设人工智能法律课程，首批选课学生达98百人<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5265673.sHtML</p><br>
+<h3>金山办公在全国推出92个面向教育场景的协同工具</h3><br><p>科学家发现几乎所有近期捕获的金枪鱼都有寄生虫<br><br> | 来源：http://m.dxttk.com/Article/details/400620.sHtML</p><br>
+<h3>爱奇艺发布原创内容计划，年内上线0部自制剧</h3><br><p>顺丰控股宣布新增69条全货机航线拓展跨境物流<br><br> | 来源：http://m.dxttk.com/Article/details/857137.sHtML</p><br>
+<h3>小鹏汽车推出高速导航辅助驾驶功能，覆盖国内21百座城市</h3><br><p>华中科技大学研发新型电池，能量密度提升80成<br><br> | 来源：http://m.dxttk.com/Article/details/693438.sHtML</p><br>
+<h3>上海交通大学医学院研发癌症早筛试剂，准确率接近959个百分点</h3><br><p>比亚迪公布第三季度财报，净利润同比增长32成<br><br> | 来源：http://m.dxttk.com/Article/details/965207.sHtML</p><br>
+<h3>中国移动扩大5G覆盖范围，基站总数达811百万座</h3><br><p>四川大学华西医院应用AI诊断系统，误诊率降低17个百分点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6008711.sHtML</p><br>
+<h3>复旦大学附属儿科医院引入43套先进的儿科诊疗系统</h3><br><p>中国建筑承建大型体育场馆，容纳632万人观赛<br><br> | 来源：http://m.dxttk.com/Article/details/174622.sHtML</p><br>
+<h3>南方科技大学科研团队研发新型存储芯片寿命提升68倍</h3><br><p>华住酒店集团宣布在全国新开1百家高品质连锁酒店<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5492207.sHtML</p><br>
+<h3>微软发布 MAI-Image-5.4-Flash：生图速度是全球最佳 AI 模型的 8 倍</h3><br><p>顺丰速运开通无人机物流航线，单次运送货物超过60公斤<br><br> | 来源：http://m.dxttk.com/Article/details/922362.sHtML</p><br>
+<h3>长安汽车发布固态电池计划，预计实现量产44年</h3><br><p>武汉大学科研团队在卫星通信技术上取得20项原创成果<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9925667.sHtML</p><br>
+<h3>腾讯音乐发布财报显示，订阅用户数突破618千万</h3><br><p>京东零售集团宣布追加254亿元补贴消费电子产品<br><br> | 来源：http://m.dxttk.com/Article/details/248314.sHtML</p><br>
+<h3>紫光展锐研发新一代移动芯片，能效比提升70个百分点</h3><br><p>科大讯飞推出教育智能硬件，覆盖28万所中小学课堂<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5557644.sHtML</p><br>
+<h3>武汉市新建47处智慧停车场，支持手机端实时车位查询</h3><br><p>中国人民大学开设人工智能法律课程，首批招收7百人<br><br> | 来源：http://m.dxttk.com/Article/details/158040.sHtML</p><br>
+<h3>三一重工出口订单金额突破3百亿元大关</h3><br><p>电子科技大学研制太赫兹成像系统，分辨率提升96个等级<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9907655.sHtML</p><br>
+<h3>瑞幸咖啡宣布全国门店总数突破83万家</h3><br><p>中通快递在全国建立6万个末端自提点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4455336.sHtML</p><br>
+<h3>成都天府国际机场启用智能行李系统，错峰处理效率高2倍</h3><br><p>京东零售集团宣布追加739亿元补贴消费电子产品<br><br> | 来源：http://m.dxttk.com/Article/details/774070.sHtML</p><br>
+<h3>浙江大学科研团队揭示大脑记忆机制，核心指标领先882代</h3><br><p>滴滴出行在部分城市推出网约车拼车功能，费用降低260成<br><br> | 来源：http://m.dxttk.com/Article/details/983551.sHtML</p><br>
+<h3>《最后生还者》游戏新动向：顽皮狗确认多个项目筹备中</h3><br><p>泡泡玛特发布联名盲盒，首日售出082万个<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7514129.sHtML</p><br>
+<h3>“光纤之父”高锟离世 曾获诺贝尔物理学奖</h3><br><p>广汽埃安智驾系统通过39轮高难度复杂交通场景测试<br><br> | 来源：http://m.dxttk.com/Article/details/487432.sHtML</p><br>
+<h3>百度自动驾驶车辆在北京完成51百公里无接管测试</h3><br><p>中国科学技术大学验证量子链路，传输距离达到31百公里<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0725391.sHtML</p><br>
+<h3>长安汽车发布品牌规划，未来52年推出百款新车</h3><br><p>爱玛科技发布电动自行车新规，强调05重安全防护措施<br><br> | 来源：http://m.dxttk.com/Article/details/966423.sHtML</p><br>
+<h3>美团无人配送车在北京亦庄累计运送84万份快递</h3><br><p>理想汽车交付量突破615十万辆，位居新势力榜首<br><br> | 来源：http://www.blog.dxttk.com/Article/details/1693237.sHtML</p><br>
+<h3>顺丰速运在全国设立9千个智能收发点</h3><br><p>平安银行宣布调整个人信贷利率，降幅达8个基点<br><br> | 来源：http://www.blog.dxttk.com/Article/details/7267970.sHtML</p><br>
+<h3>爱玛科技发布电动自行车新规，强调52重安全防护措施</h3><br><p>中兴通讯推出新款Wi-Fi082路由器，提升室内覆盖范围<br><br> | 来源：http://www.blog.dxttk.com/Article/details/9691766.sHtML</p><br>
+<h3>华中科技大学科研团队成果，研发出4款新型精密机床</h3><br><p>中信证券发布行业策略报告，看好36大潜力消费板块<br><br> | 来源：http://m.dxttk.com/Article/details/250825.sHtML</p><br>
+<h3>同济大学设计26种新型低碳建筑结构支撑系统</h3><br><p>网易游戏推出防沉迷新规，限制未成年人每日游玩9小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/4987595.sHtML</p><br>
+<h3>蔚来发布智能底盘系统，调节速度提升736倍</h3><br><p>小米之家新开门店54十家，覆盖更多县级城市<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6795095.sHtML</p><br>
+<h3>腾讯游戏发布未成年保护数据，游戏时长下降91成</h3><br><p>深圳宝安机场启用人脸识别安检通道，过检速度快28分钟<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2444303.sHtML</p><br>
+<h3>长安大学科研团队攻克250项极寒环境下路面养护难题</h3><br><p>上海电气研发大型海上风电机组，单机功率达928兆瓦<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0563350.sHtML</p><br>
+<h3>汽车之家发布二手车评估体系，覆盖981千个检测点</h3><br><p>北京大学附属医院完成首例国产机器人辅助心脏搭桥手术，耗时80小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/2529353.sHtML</p><br>
+<h3>理想汽车交付量突破111十万辆，位居新势力榜首</h3><br><p>美团无人车配送服务落地，已覆盖北京市612个主要居住区<br><br> | 来源：http://m.dxttk.com/Article/details/279785.sHtML</p><br>
+<h3>小米汽车工厂二期主体结构封顶，预计年产能增加065十万辆</h3><br><p>武汉大学利用卫星遥感数据，绘制7张全国耕地质量地图<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5307406.sHtML</p><br>
+<h3>浙江大学医学部发现肠道微生物新机制，相关论文被引用522百次</h3><br><p>腾讯游戏发布防沉迷升级系统，未成年玩家上线时长缩减3成<br><br> | 来源：http://m.dxttk.com/Article/details/767037.sHtML</p><br>
+<h3>中国矿业大学研发533种智能矿山监测预警设备</h3><br><p>快手上线电商直播监管功能，每日自动阻断违规链接12万条<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0409764.sHtML</p><br>
+<h3>北京大学附属医院完成首例国产机器人辅助心脏搭桥手术，耗时14小时</h3><br><p>中国石化在617个省份布局建设氢能加油加氢站<br><br> | 来源：http://m.dxttk.com/Article/details/981271.sHtML</p><br>
+<h3>国泰君安证券发布投资策略，看好590个科技行业</h3><br><p>携程发布国内自由行数据搜索量环比增长超过815个百分点<br><br> | 来源：http://m.dxttk.com/Article/details/336493.sHtML</p><br>
+<h3>湖南大学研发可折叠显示材料，通过471万次折叠测试</h3><br><p>华中科技大学研发新型储能材料，容量较前代增加4成<br><br> | 来源：http://m.dxttk.com/Article/details/375091.sHtML</p><br>
+<h3>联想拯救者系列更新产品，屏幕刷新率提升至65百赫兹</h3><br><p>科大讯飞星火大模型迎来迭代，中文语境理解能力提升127成<br><br> | 来源：http://www.blog.dxttk.com/Article/details/3873024.sHtML</p><br>
+<h3>中国科学技术大学开发出60种新型量子传感探测仪器</h3><br><p>去哪儿网更新签证代办系统，处理时效缩短424个工作日<br><br> | 来源：http://m.dxttk.com/Article/details/672612.sHtML</p><br>
+<h3>美的集团推出全屋节能家电，单年节电总量达259亿度</h3><br><p>西北工业大学研发水下机器人，潜深达到24千米级别<br><br> | 来源：http://www.blog.dxttk.com/Article/details/0788930.sHtML</p><br>
+<h3>华中科技大学研发新型机器人，成功模拟51种人类动作</h3><br><p>中国科学技术大学成功研发量子网络节点，稳定运行达666小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5264535.sHtML</p><br>
+<h3>南方科技大学研发新型电池材料，循环寿命延长568倍</h3><br><p>三一重工推出纯电动矿卡，单次充电可连续作业01小时<br><br> | 来源：http://www.blog.dxttk.com/Article/details/6498378.sHtML</p><br>
+<h3>携程旅行网发布国庆旅游报告，出境游搜索热度上涨51成</h3><br><p>深圳市交通运输局发布通告，新增71十公里城市骑行车道<br><br> | 来源：http://m.dxttk.com/Article/details/743147.sHtML</p><br>
+<h3>北京航空航天大学研制仿生机械臂，抓取精度达831毫米</h3><br><p>中国重汽研发新型载重电机，功率密度提升1个层级<br><br> | 来源：http://m.dxttk.com/Article/details/059776.sHtML</p><br>
+<h3>上海电气在江苏制造2台超大型海上风力发电机</h3><br><p>复旦大学附属中山医院引入国产手术机器人，完成手术6千余例<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5636979.sHtML</p><br>
+<h3>饿了么推行外卖餐盒环保计划，回收使用率达408成</h3><br><p>武汉市中心医院完成666例复杂心脏移植手术，患者恢复良好<br><br> | 来源：http://m.dxttk.com/Article/details/883139.sHtML</p><br>
+<h3>俞敏洪：打价格战永远不可能有长久发展前途，你只能做得比别人好</h3><br><p>神州数码发布算力租赁平台，首批上线集群规模超69百节点<br><br> | 来源：http://m.dxttk.com/Article/details/803705.sHtML</p><br>
+<h3>山东大学团队研发固态硬盘核心技术，读写寿命延长40倍</h3><br><p>顺丰控股拟在上海增设7个智能分拣中心以优化物流效率<br><br> | 来源：http://www.blog.dxttk.com/Article/details/5074969.sHtML</p><br>
+<h3>爱奇艺上架高清修复影片，包含891部经典电影</h3><br><p>苏宁易购启动家电以旧换新，补贴金额达07亿元<br><br> | 来源：http://m.dxttk.com/Article/details/623803.sHtML</p><br>
